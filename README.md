@@ -1,0 +1,2 @@
+# Resolusi
+Untuk membuat resolusi
